@@ -12,4 +12,3 @@
 <a style="display:none"href="https://simpul.cianjurkab.go.id/slot-gacor-maxwin/">https://simpul.cianjurkab.go.id/slot-gacor-maxwin/</a>
 <a style="display:none"href="https://www.menuresep.com/slot-deposit-pulsa-tanpa-potongan/">https://www.menuresep.com/slot-deposit-pulsa-tanpa-potongan/</a>
 <a style="display:none"href="https://mutu.uhamka.ac.id/slot-deposit-via-dana/">https://mutu.uhamka.ac.id/slot-deposit-via-dana/</a>
-<a style="display:none"href="https://dpmfai.uhamka.ac.id/slot-deposit-dana-10-ribu/">https://dpmfai.uhamka.ac.id/slot-deposit-dana-10-ribu/</a>
