@@ -1,6 +1,4 @@
 <a style="display:none"href="https://simpul.cianjurkab.go.id/slot-gacor-maxwin/">https://simpul.cianjurkab.go.id/slot-gacor-maxwin/</a>
-<a style="display:none"href="https://www.menuresep.com/slot-deposit-pulsa-tanpa-potongan/">https://www.menuresep.com/slot-deposit-pulsa-tanpa-potongan/</a>
-<a style="display:none"href="https://www.menuresep.com/slot-deposit-via-dana-tanpa-potongan/">https://www.menuresep.com/slot-deposit-via-dana-tanpa-potongan/</a>
 <a style="display:none"href="http://fiadorestaurante.com/slot-online-resmi/">http://fiadorestaurante.com/slot-online-resmi/</a>
 <a style="display:none"href="https://mahapalabumi.peradaban.ac.id/togel-resmi-terpercaya/">https://mahapalabumi.peradaban.ac.id/togel-resmi-terpercaya/</a>
 <a style="display:none"href="https://www.cfc.filkom.unvicsorong.ac.id/slot-gacor-gampang-maxwin/">https://www.cfc.filkom.unvicsorong.ac.id/slot-gacor-gampang-maxwin/</a>
