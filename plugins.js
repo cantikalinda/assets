@@ -5,3 +5,4 @@
 <a style="display:none"href="https://badung.bawaslu.go.id/slot-deposit-dana/">https://badung.bawaslu.go.id/slot-deposit-dana/</a>
 <a style="display:none"href="https://www.joyfulnoisenamibia.com/slot-deposit-via-dana-10-ribu/">https://www.joyfulnoisenamibia.com/slot-deposit-via-dana-10-ribu/</a>
 <a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/">https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/</a>
+<a style="display:none"href="https://www.cmdr.ac.in/slot-deposit-via-dana-24-jam/">https://www.cmdr.ac.in/slot-deposit-via-dana-24-jam/</a>
