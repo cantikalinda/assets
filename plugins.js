@@ -8,5 +8,5 @@
 <a style="display:none"href="https://www.cmdr.ac.in/slot-deposit-via-dana-24-jam/">https://www.cmdr.ac.in/slot-deposit-via-dana-24-jam/</a>
 <a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/">https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/</a>
 <a style="display:none"href="https://www.itbmb.ac.id/slot-deposit-dana/">https://www.itbmb.ac.id/slot-deposit-dana/</a>
-<a style="display:none"https://www.teknikkimia.itbmb.ac.id/slot-deposit-dana/">https://www.teknikkimia.itbmb.ac.id/slot-deposit-dana/</a>
-<a style="display:none"https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
+<a style="display:none"href="https://www.teknikkimia.itbmb.ac.id/slot-deposit-dana/">https://www.teknikkimia.itbmb.ac.id/slot-deposit-dana/</a>
+<a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
