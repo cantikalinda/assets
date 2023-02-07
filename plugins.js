@@ -7,9 +7,4 @@
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-pulsa/">https://fikes.unigal.ac.id/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-dana/">https://fikes.unigal.ac.id/slot-deposit-dana/</a>
 <a style="display:none"href="https://sso.gianyarkab.go.id/assets/slot-gacor/">https://sso.gianyarkab.go.id/assets/slot-gacor/</a>
-<a style="display:none"href="https://www.ladungssicherung.eu/media/slot-deposit-pulsa/">https://www.ladungssicherung.eu/media/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
-<a style="display:none"href="https://mahapalabumi.peradaban.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://mahapalabumi.peradaban.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
-<a style="display:none"href="http://fiadorestaurante.com/slot-online-resmi/">http://fiadorestaurante.com/slot-online-resmi/</a>
-<a style="display:none"href="https://www.itbmb.ac.id/slot-deposit-dana/">https://www.itbmb.ac.id/slot-deposit-dana/</a>
-<a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/">https://teknikkimia.unsika.ac.id/slot-deposit-dana-10-ribu/</a>
