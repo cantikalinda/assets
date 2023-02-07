@@ -8,4 +8,4 @@
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-pulsa/">https://fikes.unigal.ac.id/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-dana/">https://fikes.unigal.ac.id/slot-deposit-dana/</a>
 <a style="display:none"href="https://sso.gianyarkab.go.id/assets/slot-gacor/">https://sso.gianyarkab.go.id/assets/slot-gacor/</a>
-
+<a style="display:none"href="https://www.ladungssicherung.eu/media/slot-deposit-pulsa/">https://www.ladungssicherung.eu/media/slot-deposit-pulsa/</a>
