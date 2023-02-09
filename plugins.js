@@ -4,5 +4,6 @@
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-pulsa/">https://fikes.unigal.ac.id/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
 <a style="display:none"href="https://sso.gianyarkab.go.id/assets/slot-gacor/">https://sso.gianyarkab.go.id/assets/slot-gacor/</a>
-
-
+<a style="display:none"href="https://simpul.cianjurkab.go.id/slot-gacor/">https://simpul.cianjurkab.go.id/slot-gacor/</a>
+<a style="display:none"href="https://simpul.cianjurkab.go.id/slot-dana/">https://simpul.cianjurkab.go.id/slot-dana/</a>
+<a style="display:none"href="https://simpul.cianjurkab.go.id/slot-pulsa/">https://simpul.cianjurkab.go.id/slot-pulsa/</a>
