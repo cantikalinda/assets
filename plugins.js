@@ -3,3 +3,6 @@
 <a style="display:none"href="https://fikes.unigal.ac.id/casino-online/">https://fikes.unigal.ac.id/casino-online/</a>
 <a style="display:none"href="https://fikes.unigal.ac.id/slot-deposit-pulsa/">https://fikes.unigal.ac.id/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/">https://teknikkimia.unsika.ac.id/slot-deposit-pulsa-tanpa-potongan/</a>
+<a style="display:none"href="https://sso.gianyarkab.go.id/assets/slot-gacor/">https://sso.gianyarkab.go.id/assets/slot-gacor/</a>
+
+
