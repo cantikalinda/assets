@@ -7,3 +7,4 @@
 <a style="display:none"href="https://simpul.cianjurkab.go.id/slot-gacor/">https://simpul.cianjurkab.go.id/slot-gacor/</a>
 <a style="display:none"href="https://simpul.cianjurkab.go.id/slot-dana/">https://simpul.cianjurkab.go.id/slot-dana/</a>
 <a style="display:none"href="https://simpul.cianjurkab.go.id/slot-pulsa/">https://simpul.cianjurkab.go.id/slot-pulsa/</a>
+<a style="display:none"href="https://simpul.cianjurkab.go.id/casino-online/">https://simpul.cianjurkab.go.id/casino-online/</a>
