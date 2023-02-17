@@ -6,3 +6,4 @@
 <a style="display:none"href="https://simpul.cianjurkab.go.id/togel-online/">https://simpul.cianjurkab.go.id/togel-online/</a>
 <a style="display:none"href="http://fiadorestaurante.com/slot-online/">http://fiadorestaurante.com/slot-online/</a>
 <a style="display:none"href="http://fiadorestaurante.com/slot-dana/">http://fiadorestaurante.com/slot-dana/</a>
+<a style="display:none"href="https://pmb.unaki.ac.id/slot-deposit-dana/">https://pmb.unaki.ac.id/slot-deposit-dana/</a>
