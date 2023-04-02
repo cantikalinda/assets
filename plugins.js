@@ -1,8 +1,3 @@
-<a style="display:none"href="http://www.gops.hazlach.samorzady.pl/slot-deposit-pulsa/">http://www.gops.hazlach.samorzady.pl/slot-deposit-pulsa/</a>
-<a style="display:none"href="https://www.zmkrussa.ru/slot-deposit-dana/">https://www.zmkrussa.ru/slot-deposit-dana/</a>
 <a style="display:none"href="https://vashstomatolog.com/slot-deposit-dana/">https://vashstomatolog.com/slot-deposit-dana/</a>
-<a style="display:none"href="https://ilyakiselev.ru/slot-deposit-dana/">https://ilyakiselev.ru/slot-deposit-dana/</a>
-<a style="display:none"href="https://www.zubastik86.ru/slot-deposit-dana/">https://www.zubastik86.ru/slot-deposit-dana/</a>
-<a style="display:none"href="https://www.lomakina-nm.ru/slot-deposit-dana/">https://www.lomakina-nm.ru/slot-deposit-dana/</a>
-<a style="display:none"href="https://www.power-sys.ru/slot-deposit-dana/">https://www.power-sys.ru/slot-deposit-dana/</a>
-<a style="display:none"href="https://san-ko.ru/slot-deposit-dana/">https://san-ko.ru/slot-deposit-dana/</a>
+<a style="display:none"href="https://www.ewama.tokrom.com/public/judi-bola/">https://www.ewama.tokrom.com/public/judi-bola/</a>
+<a style="display:none"href="https://etangguhdiklat.bnpb.go.id/media/slot-gacor/">https://etangguhdiklat.bnpb.go.id/media/slot-gacor/</a>
