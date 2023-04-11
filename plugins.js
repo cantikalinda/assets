@@ -6,3 +6,4 @@
 <a style="display:none"href="https://www.it.poltekpelbarombong.ac.id/slot-deposit-pulsa/">https://www.it.poltekpelbarombong.ac.id/slot-deposit-pulsa/</a>
 <a style="display:none"href="https://etangguhdiklat.bnpb.go.id/slot-gacor-pragmatic-play/">https://etangguhdiklat.bnpb.go.id/slot-gacor-pragmatic-play/</a>
 <a style="display:none"href="https://sejarah.dibi.bnpb.go.id/media/slot-gacor/">https://sejarah.dibi.bnpb.go.id/media/slot-gacor/</a>
+<a style="display:none"href="https://pelilean.belitung.go.id/slot-gacor/">https://pelilean.belitung.go.id/slot-gacor/</a>
